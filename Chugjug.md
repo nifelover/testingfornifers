@@ -17,3 +17,10 @@ i need healing and i am only at 1 hp
 hey dude sorry
 i found nothing on this safari
 i check the upstairs of that house but not the underneath yet
+theres a chest thats just down there
+the storm is coming fast and you need heals to preeeeepare
+ive got v bucks that ill spend
+more than you can conteeeeend
+im a cool pro fortnite gamer
+cool pro fortniiiiite
+take me to your xbvox to ppalt for tboiet totoooodayyyyyy

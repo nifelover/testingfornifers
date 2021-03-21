@@ -7,3 +7,6 @@ now we're in the pleasant park streets
 look at the map go to marked sheets
 take me to your xbox to play fortniiiiite tooooodayyyyyy
 calbin was hiere
+you can take me to moisty mires but not loot lake
+i really like to, chug jug withyou
+we can be pro fornite gamers

@@ -33,3 +33,12 @@ la la alallal eeeeea aaaaaa
 will you be my pro fornite gamer? pro formtioine gamers
 can we get a win this weekend?
 take me to loot lake
+lets change the game mode and we can disco dominate
+lets hop on an ATK
+take me to the zone
+im running kinda low on mats  i need to break some stones
+dressed in all his fancy clothes
+hes got renigate raider and hes probably a pro
+he just shot my back
+i turned back and i attack
+i just got a virtory royal

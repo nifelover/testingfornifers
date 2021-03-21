@@ -42,3 +42,9 @@ hes got renigate raider and hes probably a pro
 he just shot my back
 i turned back and i attack
 i just got a virtory royal
+a vitrycot roiall
+take mre tyou your aexvoebos to play forthinien toodadyyy
+take me to moustyt myires bntu not loot llalellke
+i really love tooooo chug jug with you
+we can be pro fortnite gamers
+pro fortnite gamers

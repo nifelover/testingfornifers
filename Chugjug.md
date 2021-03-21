@@ -14,3 +14,6 @@ he said
 hey broski
 you got heals and a shield pot?
 i need healing and i am only at 1 hp
+hey dude sorry
+i found nothing on this safari
+i check the upstairs of that house but not the underneath yet

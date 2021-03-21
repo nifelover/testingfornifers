@@ -24,3 +24,9 @@ more than you can conteeeeend
 im a cool pro fortnite gamer
 cool pro fortniiiiite
 take me to your xbvox to ppalt for tboiet totoooodayyyyyy
+you can take me to moisty mires, but not loot lake
+i really like to chug jug with you
+we can be pro fornite gamers
+la la la la la eee aaaaaaaaaaa
+lalalalala eeeeeee aaaaaaaaaaa
+la la alallal eeeeea aaaaaa 

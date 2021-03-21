@@ -10,3 +10,7 @@ calbin was hiere
 you can take me to moisty mires but not loot lake
 i really like to, chug jug withyou
 we can be pro fornite gamers
+he said
+hey broski
+you got heals and a shield pot?
+i need healing and i am only at 1 hp

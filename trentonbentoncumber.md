@@ -13,6 +13,13 @@
 
   <h4> oh hey look a heading <a href="https://www.youtube.com/watch?v=dQw4w9WgXcQ"> you can also change link sizes or include them in headings/paragraphs</a> </h4>
 
+
+  <ul> <h3>IMAGES</h3> </ul>
+
+  <img src="https://upload.wikimedia.org/wikipedia/commons/thumb/9/9f/King_Edward.jpg/1200px-King_Edward.jpg"/>
+
+  <p> yeah sorry you're gonna have to go in an editor for this bad boy but basically you open the image you want to add to the page as a window in your browser. Then, you grab its url and put it in the quotation marks after src! </p>
+
 </body>
 
 </html>

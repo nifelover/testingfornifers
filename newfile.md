@@ -16,7 +16,7 @@
 <h1> jas waz here </h1>
 
 <h3> uhoh moment
-  its supposed to be red </h3>
+its supposed to be red </h3>
 
 <p> i sweari know what im doing bros <p>ltr
 

@@ -11,7 +11,7 @@
 
 <p> In html, you put everything in between starting and ending brackets with matching text/codewords. The only difference is that the ending bracket will have a slash before the text. Using a lowercase "p" will print small text like this. </p>
 
-<h2> using an h and a number after it from 1=5 makes headings! the higher the number, the smaller the heading is. </h2>
+<h2> using an h and a number after it from 1=6 makes headings! the higher the number, the smaller the heading is. </h2>
 
 <h5> hi i am small </h5>
 
